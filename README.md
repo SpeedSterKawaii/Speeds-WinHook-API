@@ -26,3 +26,6 @@ Made by SpeedSterKawaii aka Speed Softwares (CREDIT ME).
 
 Give credits to speedsterkawaii for the winhook api, ill expose you if you dont give credits.
 Oh and don't just change the text and release it, thats skidding and ur gonna get exposed.
+
+EDIT SEPTEMBER:
+# STOP ASKING ME HOW TO UPDATE THERE IS 0 UPDATING NEEDED BRUH
